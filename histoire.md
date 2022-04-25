@@ -9,3 +9,5 @@ mon ventre n'en pouvais plus.
 n'arrivant plus Ã  me lever, ...
 je me rendormis. 
 Quand soudain j'ai rˆv‚ de, 
+mes vacances. 
+j'ai pr‚vu d'aller, 
