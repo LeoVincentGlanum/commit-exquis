@@ -11,3 +11,5 @@ je me rendormis.
 Quand soudain j'ai rˆv‚ de, 
 mes vacances. 
 j'ai pr‚vu d'aller, 
+de profiter de chacun de ces moments ! 
+3 ans plus tard, 
